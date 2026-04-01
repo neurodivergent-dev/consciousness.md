@@ -1,3 +1,7 @@
+Yansımayla Konuştum
+
+
+
 Gömülmüşüm absürde doğru anlamazdım, Yaşıyor muyum şuan, neden yaşıyorum? O bana baktı, ben ona baktım sürekli., Yaptıklarımı tekrar etti, istemedim hiç,
 
 
